@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **dipanjandhar18@gmail.com**
 
-- ⚡ Fun fact **I am an avid quizzer with a passion in Sports and Tech**
+- ⚡ **I am an avid quizzer with a passion in Sports and Tech**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
